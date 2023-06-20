@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SwiftieSupport
+- 👀 I’m interested in creating non profit solutions for vulnerable communties
+- 🌱 I’m currently learning how hard it is to get people to listen to you.
+- 💞️ I’m looking to collaborate on any worthwhile project aimed to protect vulnerable communities online.
+- 📫 How to reach me: cayti@houseof1001stories.com
